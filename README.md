@@ -26,6 +26,10 @@ Generously share what you think useful and accumulate the green squares in your 
   * 闵钰   @[uyiqgyy](https://github.com/uyiqgyy) 
   * 浦岸峰 @[PuAnfeng](https://github.com/PuAnfeng)
   * 邵一鸣 @[mrrllbb](https://github.com/mrrllbb)
+* Chenxi's team
+* 倪晨曦   @[Akiyame](https://github.com/Akiyame) 
+* 陈枫 @[chenfeng110](https://github.com/chenfeng110)
+* 文继飞 @[Caster-V-Rune](https://github.com/Caster-V-Rune)
 
 ### Useful Links
 
